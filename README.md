@@ -1,0 +1,5 @@
+- Uribe García Zurisadai - 318223197
+- Rodríguez García Ulises - 318042202
+- Ramírez Plascencia Tania - 318038830
+- Illescas Coria Janet - 318219309
+- Cruz Hernández Victor Emiliano - 318081166
